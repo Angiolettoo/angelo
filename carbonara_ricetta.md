@@ -1,6 +1,6 @@
 # Mezze maniche rigate n. 122 alla carbonara - Voiello
 
-![Immagine](https://www.voiello.it/ricette/mezze-maniche-rigate-n-122-alla-carbonara/)
+![Immagine](https://www.voiello.it/wp-content/uploads/2021/09/Mezze-maniche-carbonara_sito.jpg)
 
 **INGREDIENTI:**
 - 400 g di Mezze Maniche Rigate Voiello n. 122
